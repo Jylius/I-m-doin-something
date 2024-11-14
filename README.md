@@ -1,0 +1,4 @@
+sa
+as
+orkun
+baba
